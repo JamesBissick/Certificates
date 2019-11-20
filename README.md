@@ -1,3 +1,3 @@
 # Certificates
 
-List of my certifications and diplomas :)
+List of my certifications and diplomas
